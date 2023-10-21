@@ -39,6 +39,7 @@ _"Here I stand, here I remain."_ - Duncan Idaho
 
 This motto embodies our steadfast commitment to our mission. With every line of code, we stand firm, shaping the future one keystroke at a time. Welcome to House Asteris, where determination meets the cosmic expanse, and innovation knows no bounds.
 
+---
 My favorite Band from all time is **TOOL**, band that has inspired me to furthering my growth, my concept of human expirence and the meaning of life itself, mind blowing and in methodical rythim
 here is some insing of what I belive base their music:
 
