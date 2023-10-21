@@ -11,7 +11,7 @@ In the spirit of the great Stoic philosopher Marcus Aurelius, I reflect upon lif
 In the virtual realms of HOI4, Stellaris, and Victoria 3, I am a strategist and a tactician, conquering lands, forging alliances, and shaping empires. Follow my campaigns and conquests, and perhaps we can even embark on grand adventures together in these grand strategy games.
 
 ## 🌌 Tales from Middle-earth
-As a humble ranger in the vast world of Middle-earth, I delve into the lore of J.R.R. Tolkien's masterpiece, The Lord of the Rings. Let us embark on the highest of quest to detroy the one ring or maybe use it?...just dont be a fool of a took.
+As a humble ranger in the vast world of Middle-earth, I delve into the lore of J.R.R. Tolkien's masterpiece, The Lord of the Rings. Let us embark on the highest of quest to detroy the one ring or maybe use it?...just don't be a fool of a Took.
 
 _<em>"A WALKING SONG"</em>_
 
